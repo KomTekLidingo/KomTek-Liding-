@@ -1,1 +1,1 @@
-# KomTek-Lidingos första forsok-
+# KomTek-Lidingos forsta forsok-
